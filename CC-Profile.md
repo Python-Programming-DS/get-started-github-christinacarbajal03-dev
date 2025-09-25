@@ -1,1 +1,1 @@
-
+I am a first year graduate student at the University of Florida! I have also gotten a B.S. with a major in Data Science at UF as well. I am not currently working on any projects, other than the ones in my classes. I work for one of the smaller companies at UF, called the Lastinger Center for Education, as a student assistant to the technology team. I have a hound dog named Georgie that is 6 years old and will be 7 in November. Some of my hobbies include weightlifting, charcuterie boards, and binging tv series and movies. 
